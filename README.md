@@ -1,5 +1,5 @@
-Execute SILVER!! because im not get his Sygna suit yet
+CANCEL SILVER PUBLIC EXECUTION!! because im finally got his Sygna suit
 
 <p align="center">
-  <img src="6ff62fc573faacaed6e2fbf38fa1195f.jpg" alt="Silver" width="500">
+  <img src="41637da81f7d641052f5983bca25cea4.jpg" alt="Silver" width="500">
 </p>
